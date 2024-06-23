@@ -8,4 +8,4 @@
 ![oliver](https://user-images.githubusercontent.com/98495978/218823670-366d6f3b-44a2-4951-b2af-f51ae551b8b4.png)
 
 # that's it lol
-![GPn5xeGWoAAJKMM](https://github.com/Paracosm-Daemon/Paracosm-Daemon/assets/98495978/1a45fd97-a2d4-41cf-8535-93e3da35e3d1)
+![heeeelp](https://github.com/Paracosm-Daemon/Paracosm-Daemon/assets/98495978/1a45fd97-a2d4-41cf-8535-93e3da35e3d1)
